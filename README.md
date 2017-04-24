@@ -79,3 +79,75 @@ What were aspects of the presentations for which you had concerns or questions:
 They focus too much on the skills of analysis. But what I care is how to interpret analysis result and the meaning of the model.
 
 
+
+
+Title of presentation: 
+
+Gaming
+
+What were aspects of the presentation that you liked:
+
+Beautiful presentation.
+
+What were aspects of the presentations for which you had concerns or questions:
+
+The interactions between champions.
+
+
+
+
+Title of presentation: 
+
+H1B
+
+What were aspects of the presentation that you liked:
+
+
+
+What were aspects of the presentations for which you had concerns or questions:
+
+Does "STEM" really matter in application? Do the comparision.
+
+
+
+
+
+Title of presentation: 
+
+Traffic
+
+What were aspects of the presentation that you liked:
+
+A lot of analysis.
+
+What were aspects of the presentations for which you had concerns or questions:
+
+How does the improvement of car influence traffic accident.
+
+
+
+
+
+Title of presentation: 
+
+songs
+
+What were aspects of the presentation that you liked:
+
+beautiful plots
+
+What were aspects of the presentations for which you had concerns or questions:
+
+
+
+Title of presentation: 
+
+terrorism
+
+What were aspects of the presentation that you liked:
+
+animation part
+
+What were aspects of the presentations for which you had concerns or questions:
+
+
